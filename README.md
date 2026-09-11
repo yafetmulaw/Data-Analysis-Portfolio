@@ -31,4 +31,4 @@ This repository contains selected projects that demonstrate my ability to clean 
 Yafet Mulaw
 Addis Ababa, Ethiopia  
 Email: yafetmulaw@gmail.com  
-[Yafet Mulaw on LinkedIn](https://www.linkedin.com/in/yafet-mulaw/)
+[Yafet Mulaw on LinkedIn](https://www.linkedin.com/in/yafetmulaw/)
